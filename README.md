@@ -1,3 +1,4 @@
+![Snacks](https://user-images.githubusercontent.com/110528179/204406695-c0e064b6-52ed-42e8-8d42-7e0ef5cd3918.png)
 
 - 👋 Hi, I’m @cafeunimelb
 - 👀 I’m interested in ... coffee 
